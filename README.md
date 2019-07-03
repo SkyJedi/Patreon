@@ -20,3 +20,5 @@
 - Matthew Weber
 - Scott Ferwerda
 - Haris
+- Caio Iwasaki
+- Octavious Wood
