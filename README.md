@@ -22,3 +22,5 @@
 - Haris
 - Caio Iwasaki
 - Octavious Wood
+- Michael Wifall
+- Frances Zeller
