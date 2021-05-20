@@ -25,3 +25,34 @@
 - Michael Wifall
 - Frances Zeller
 - Disjointedtales
+- Mortivas
+- Andrew Ballard
+- Gee Barger
+- Joshua Fisher
+- Luke Hemken
+- Carl McGee
+- Ian Renwick
+- Kaleb Chambers
+- Collin Johnson
+- lotsa_muffins
+- Jason Marker
+- Joseph Shufelt
+- Korial Katan
+- Conor Mahood
+- Daniel Smith
+- Christophe Hilaire
+- Ben Huber
+- Austin Kukay
+- Masumi Hano
+- Cuy
+- Mattheau Fain
+- Justin Lizza
+- RB Trary & Cap Rishus with Puns That Don't Work When Read Aloud
+- MadKingMidas
+- rizepe
+- Tyler Hall
+- Daniel Tickle
+- Christopher Farnham
+- Darcher
+- Ryan Falzon
+- Filbert66
